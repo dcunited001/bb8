@@ -212,7 +212,7 @@ No one in my family or life was concerned at all about:
   try, you can never make me hate anyone
   - .... except communists. i guess i hate communists. i wonder, why?
 
-#### How did Bobby get away?
+#### (1) How did Bobby get away?
 
 > i now know the answer to this
 
@@ -434,7 +434,6 @@ the police DID come back to my house and briefly searched
     people to *think* you're breaking into cars, you're not going to
     carry a flashlight.
 
-
 #### Why did bobby know how to use psychological & NLP techniques like suggestion and "priming"?
 
 - and how would he know how to use psychological suggestion tactically
@@ -460,7 +459,21 @@ the police DID come back to my house and briefly searched
 - priming works just like it does for a lawnmower, psychologically and
   neurologically. you are literally PRIMING specific circuits to fire
   again soon.
-  -
+  - this works by raising the probability of neuro-circuit
+    reactivation above infinitesimal
+    - it can be unpredictable, since you're still leaving the subject
+      in control of their decisions. the intent is to make it more
+      likely that the subject will re-engage certain neural circuits
+      within a short timeframe.
+    - when applied effectively, it is a tactic of NLP that renders the
+      subject unconscious to why they made certain decisions, which
+      means they may not understand why they made their
+      decisions. however, since the priming activations must occur
+      during a short timeframe before they would be reactivated, using
+      it too often or without obfuscating the actions through multiple
+      agents, the subject can become aware of who influenced them, how
+      they were influenced and why, even if they are not aware of how
+      such "priming" works
 
 #### How did bobby know to hide in the tunnel at Roanoke College?
 
@@ -475,3 +488,67 @@ the police DID come back to my house and briefly searched
 
 
 ####
+
+
+
+
+
+#### (24) Why is it that I'm not connected to a single person who cares enough about me to help me explore options for relaliating or defending myself?
+
+- in the days after this happened, no one i talked to about it (my
+  family, friends, etc) ever tried to move me toward options for
+  dealing with what happened.
+  - no suggestions of getting a lawyer
+  - no attempts to help me find a lawyer
+  - no attempts to bring that or any other options up in conversation
+
+
+#### (25) Why is
+
+
+
+
+
+============
+
+If [Ludwig Boltzmann](https://www.youtube.com/watch?v=hENRIAx-6D4)
+were alive today, my community would decide that the life of a Heroin
+Dealer were more important. Ludwig Boltzmann is someone who's ideas
+were not appreciated until after his death, when they founded the
+basis of #Thermodynamics. He was a true genius who plummeted to his
+death because his family helped reinforce the circumstances which led
+to his depression.
+
+The world was not ready for thermodynamics when boltzmann's
+understanding of statistics led to its initial foundations. his life
+was cut tragically short. more than ideas themselves which provide the
+basis of what i have formulated, i understand the biographical details
+and motivations of countless great men thoughout history. i understand
+what psychologically motivates people to transcend humanity's
+limitations of knowledge. i understand how to idenfity those
+boundaries and how to reformulate what exists to create a wider body
+of knowledge.
+
+BUT WHAT I CANNOT UNDERSTAND IS WHY THE HELL MY COMMUNITY WOULD SIT BY
+AND DO NOTHING WHEN A HEROIN DEALER CONSPIRES TO PLANT DRUGS ON ME AND
+THROW ME AT POLICE.
+
+And this is a crux of my argument for a nihilistic crisis that
+threatens humanity -- not that i would approach Boltzmann or
+necessarily be great. However, it appears nothing any man could do in
+the 21st century would distinguish them above any welfare-subsisting
+heroin-dealing bottom-feeder... Not a try-hard wannabe Boltzmann; or
+the real thing: a Boltzmann, a new Einstein, another Hawking: none of
+it matters. In my case, nothing I could ever do would ever grant me
+any opportunity in society.
+
+The situation as it is now, is far better than it is 20 years from
+now, when it is certainly impossible for any man to transcend any
+achievement of artificial intelligence. This is what it means for
+humanity to suffer through the greatest nihilistic crisis in
+history. There is no purpose for your existence. There is no purpose
+for any man's existence. Even if your definition of meaning in life is
+as noble as struggling to carry the human race forwards: *THERE IS
+NOTHING ANY MAN CAN CONTRIBUTE.*
+
+============
